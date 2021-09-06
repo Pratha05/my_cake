@@ -1,0 +1,1 @@
+Chocolate cake is a cake flavored with melted chocolate, cocoa powder, or both. Chocolate cake are of different tastes , shape and size.The main ingredient of the chocolate cake is cocoa, which helps our brain to relax and makes us feel good. This is why whenever we eat chocolate cake, our moods lighten and we feel a lot better. It goes with every occasions. 
